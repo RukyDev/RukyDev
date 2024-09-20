@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @RukyDev
 - 👀 I’m interested in FullStack Role ...
 - 📫 How to reach me ...
-08132527978
-Rukevwe.anaka@gmail.com
+-   08132527978
+-   Rukevwe.anaka@gmail.com
 
